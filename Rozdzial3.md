@@ -7,9 +7,10 @@ Powiedział nauczyciel.
 - Tosiu, możesz zostać chwilę? Muszę z tobą porozmawiać.
 
 Powiedział nauczyciel.
-
-- ale co z tym gitem
-Rzekła Tosia
-
+- Niestety - odpowiedziała Tosia - nie ma opcji.
 Powiedział nauczyciel. Dziewczyna spakowała swój plecak i podreptała w kierunku nauczyciela. "Ciekawe o co mu chodzi" pomyślała.
 
+
+Powiedział nauczyciel.
+
+- ale co z tym gitem
