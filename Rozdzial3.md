@@ -2,3 +2,4 @@ Rozbrzmiał dzwonek kończący lekcję histori. To była ostatnia lekcja dnia te
 - Tosiu, możesz zostać chwilę? Muszę z tobą porozmawiać.
 Powiedział nauczyciel.
 - Niestety - odpowiedziała Tosia - nie ma opcji.
+Powiedział nauczyciel. Dziewczyna spakowała swój plecak i podreptała w kierunku nauczyciela. "Ciekawe o co mu chodzi" pomyślała.
