@@ -15,4 +15,6 @@ Autobus utknął w korku, akurat wówczas gdy jej się tak śpieszyło.
 
 Niestety mimo pośpiechu jak na złość autobus jechał strasznie wolno. 
 
-Przyszedl Stasiu a Psem, weszli razem do autobusu. Pies nie mial biletu.
+Przyszedl Stasiu z Psem, weszli razem do autobusu. Pies nie mial biletu.
+
+Pies dostał mandat. Pińcset złotych.
