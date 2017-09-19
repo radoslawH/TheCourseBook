@@ -13,6 +13,20 @@ Autobus utknął w korku, akurat wówczas gdy jej się tak śpieszyło.
 
 - Masakra! - pomyślała.
 
+Na pierwszej lekcji miała być historia. Bardzo nie lubiła tego przedmiotu.
+
 Niestety mimo pośpiechu jak na złość autobus jechał strasznie wolno. 
 
-Przyszedl Stasiu a Psem, weszli razem do autobusu. Pies nie mial biletu.
+Przyszedl Stasiu z Psem, weszli razem do autobusu. Pies nie mial biletu.
+
+Pies dostał mandat. Pińcset złotych.
+
+Uśmiechnęła się czarująco i ... widziała jak kanar mięknie w oczach.
+
+- A może umówimy się na kawę? - spytał
+
+- Czy tylko?
+
+- A mógłbym chcieć coś więcej?
+
+- No pewnie, podobasz mi się.
