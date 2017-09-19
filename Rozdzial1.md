@@ -26,3 +26,7 @@ Uśmiechnęła się czarująco i ... widziała jak kanar mięknie w oczach.
 - A może umówimy się na kawę? - spytał
 
 - Czy tylko?
+
+- A mógłbym chcieć coś więcej?
+
+- No pewnie, podobasz mi się.
