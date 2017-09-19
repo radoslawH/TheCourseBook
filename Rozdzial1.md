@@ -20,3 +20,9 @@ Niestety mimo pośpiechu jak na złość autobus jechał strasznie wolno.
 Przyszedl Stasiu z Psem, weszli razem do autobusu. Pies nie mial biletu.
 
 Pies dostał mandat. Pińcset złotych.
+
+Uśmiechnęła się czarująco i ... widziała jak kanar mięknie w oczach.
+
+- A może umówimy się na kawę? - spytał
+
+- Czy tylko?
