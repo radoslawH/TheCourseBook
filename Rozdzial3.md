@@ -6,11 +6,7 @@ Powiedział nauczyciel.
 
 - Tosiu, możesz zostać chwilę? Muszę z tobą porozmawiać.
 
-Powiedział nauczyciel.
-- Niestety - odpowiedziała Tosia - nie ma opcji.
-Powiedział nauczyciel. Dziewczyna spakowała swój plecak i podreptała w kierunku nauczyciela. "Ciekawe o co mu chodzi" pomyślała.
+
+Tosia była bardzo podekscytowana. Czuła, że to wielkie wyróznienie móc zostać z panią sam na sam :) 
 
 
-Powiedział nauczyciel.
-
-- ale co z tym gitem
