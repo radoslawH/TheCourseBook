@@ -30,3 +30,7 @@ Uśmiechnęła się czarująco i ... widziała jak kanar mięknie w oczach.
 - A mógłbym chcieć coś więcej?
 
 - No pewnie, podobasz mi się.
+
+- Żartowałam. Fajny jesteś ale na zbyt dużo nie licz.
+
+Mina mu zrzedła
