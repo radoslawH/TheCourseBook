@@ -1,0 +1,1 @@
+Nie tego się spodziewał. Policji nie powinno być w tej szemranej dzielnicy.
